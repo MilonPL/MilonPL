@@ -5,8 +5,7 @@
 My name is Milon, you can call me whatever you like, I don't mind it.\
 I code stuff in **JS**, **Python**, **lua**, and sometimes **C++**.\
 I also make Discord bots.\
-Living embodiment of chaos.\
-Demisexual.
+Living embodiment of chaos.
 
 > My head is empty, it's only resident is autism.
 
