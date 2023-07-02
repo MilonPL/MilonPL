@@ -10,10 +10,10 @@ Living embodiment of chaos.
 > My head is empty, it's only resident is autism.
 
 Feel free to add me:
-* Discord: Milon#5755
+* Discord: milonn
 * Steam Friend Code: 994497202
 * Telegram: @milonpl
 
 
 
-<sub> Hello fren. Why are you reading this? Invest in cheese. Or don't. Encouragement isn't my thing. </sub>
+<sub> Sometimes I dream about cheese. I hope to become a cheese stick one day. </sub>
