@@ -3,17 +3,13 @@
 <sub> *usually </sub>
 
 My name is Milon, you can call me whatever you like, I don't mind it.\
-I code stuff in **JS**, **Python**, **lua**, and sometimes **C++**.\
-I also make Discord bots.\
-Living embodiment of chaos.
+I know **JS**, **Python**, **lua**, **SQL**, **php**, **HTML**, allegedly.\
+Living embodiment of chaos.\
+Fucked up and evil.
 
-> My head is empty, it's only resident is autism.
+> Low effort and catastrophic is just my aesthetic.
 
 Feel free to add me:
 * Discord: milonn
 * Steam Friend Code: 994497202
 * Telegram: @milonpl
-
-
-
-<sub> Sometimes I dream about cheese. I hope to become a cheese stick one day. </sub>
