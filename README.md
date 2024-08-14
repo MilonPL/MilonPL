@@ -4,7 +4,7 @@
 
 My name is Milon, you can call me whatever you like, I don't mind it.\
 I know **JS**, **Python**, **lua**, **SQL**, **php**, **HTML**, allegedly.\
-On my **C#** (evil) arc.
+On my **C#** (evil) arc.\
 Living embodiment of chaos.\
 Fucked up and evil.
 
