@@ -5,7 +5,7 @@
 My name is Milon, you can call me whatever you like, I don't mind it.\
 I know a bunch of stuff about some things, mostly C# .NET, system management, some UI/UX dev, full-stack.\
 Not active that much here becasue well, work and life and such!\
-Living embodiment of chaos.\
+Living embodiment of chaos.
 
 > Low effort and catastrophic is just my aesthetic.
 
